@@ -1,3 +1,0 @@
-# kiravalcante
-
-Cybersecurity enthusiast.
